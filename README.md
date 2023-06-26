@@ -1,6 +1,6 @@
 Voting for _____
 
-![AltHack Delhi Banner Template](https://github.com/MmukulSharrma/newhub/assets/137610904/102bfa34-eb87-4a35-bd63-f1e3ce32988e)
+![AltHack Delhi Banner Template (1)](https://github.com/MmukulSharrma/newhub/assets/137610904/973b4a8e-47e4-4184-a19a-26c262c70c9f)
 
 
 
